@@ -1,1 +1,0 @@
-jdshoot.github.io pages
